@@ -231,4 +231,4 @@ Elcomsoft Phone Breaker is the complete free version, with all features and upda
 Unlock your password-protected backups today with Elcomsoft Phone Breaker. **Download now and regain access to your important data!**
 
 ---
-**Last updated:** 2026-11-06 08:36:14 UTC
+**Last updated:** 2026-11-06 16:21:06 UTC
